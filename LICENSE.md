@@ -1,4 +1,4 @@
-# 
+# Professionnel 30+ AI Projects at UQAC préréglages. Avec entraînement de modèles et reconnaissance vocale — optimisé pour des performances maximales.
 
 
 
